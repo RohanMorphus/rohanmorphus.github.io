@@ -1,1 +1,1 @@
-rohanmorphus.github.io
+Unlock unparalleled accuracy in Counter-Strike 2 with AimJunkies, a premium aimbot cheat that offers advanced features and customization options. This repository provides a comprehensive toolkit to enhance your gameplay, featuring responsive aimbot, configurable settings, and anti-detection measures. Whether you're a competitive player or just looking to have an edge, AimJunkies ensures you stay ahead of the game. Download now and experience the future of Counter-Strike 2 cheating! Note: This is a cheat for the entire game, not just one function.
